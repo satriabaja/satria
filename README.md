@@ -1,2 +1,2 @@
-# satria
-strong
+# hari pertama saya!
+
